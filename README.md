@@ -1,1 +1,1 @@
-# FayziddinSayliev.github.io
+# fayzidin.github.io
